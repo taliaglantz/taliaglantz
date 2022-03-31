@@ -1,1 +1,1 @@
-Hiya 👋🏼  my name is Talia and I am  a Software Developer at @doddle 😄
+Hiya 👋🏼  my name is Talia and I am  a Software Developer at Doddle 😄
